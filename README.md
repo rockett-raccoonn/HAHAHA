@@ -1,3 +1,5 @@
+![alt text]([http://url/to/img.png](https://i.pinimg.com/736x/99/ac/fd/99acfde9d1dc56c412ab0122974a8e39.jpg))
+
 # HAHAHA
 ✨ Hello! My name is Venegas, but if you want, you can call me Vinnie or whatever cosplay I'm currently in. I use she/her pronouns. You may have seen me around, or maybe even coloring trees! Wherever you're from, you can have some info about me :D
 
