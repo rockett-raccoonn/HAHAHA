@@ -51,7 +51,7 @@ I have soo many interests, but here are just a few of them..
 
 🐈‍⬛ * I have 4 cats and I love them all so, so dearly. 
 
-* Progressive Christian! That means that no, I don't think being a minority is a sin. Be respectful, please!
+* Progressive Christian! That means that no, I don't think being a minority is a sin. God loves all his children! If you aren't Christian, thats totally fine, just be respectful, please! I am an ex-satanist/witch/hellenist/judaist, all from different periods of my life, so chances are, I understand where you're coming from if you're uncomfortable being around religious people. Thats alright! I won't push it on anybody, though I do openly show my love for God. 
   
 ![bababanner5](https://github.com/user-attachments/assets/cbe15ca6-a708-4642-9798-57f91261996c)
 
