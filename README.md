@@ -1,7 +1,11 @@
-![alt text]([http://url/to/img.png](https://i.pinimg.com/736x/99/ac/fd/99acfde9d1dc56c412ab0122974a8e39.jpg))
+
+![bababanner](https://github.com/user-attachments/assets/9bc35368-b858-4fa9-9440-58d2ffdb8d48)
+
 
 # HAHAHA
 ✨ Hello! My name is Venegas, but if you want, you can call me Vinnie or whatever cosplay I'm currently in. I use she/her pronouns. You may have seen me around, or maybe even coloring trees! Wherever you're from, you can have some info about me :D
+
+![bababanner3](https://github.com/user-attachments/assets/82ec8f17-e821-4478-893c-02dff9abff6b)
 
 🍎 # PONYTOWN INFO
 ---- 
@@ -19,6 +23,8 @@
 * I may sometimes be offtab but I never usually specify when I am, so make sure to whisper me anything you have to say so I can see it.
   
 * Don't copy my skins, but I'm ope to teach you how I did certain parts of them (Hair, shading, clothes, etc.)
+* 
+  ![bababanner4](https://github.com/user-attachments/assets/d68aebec-b52a-4fb7-9fc1-c67a16b9e84e)
   
  🎨 # FANDOM AND PERSONAL INTERESTS
   ----
@@ -30,6 +36,8 @@ I have soo many interests, but here are just a few of them..
 🎵 * As far as music goes.. Heres what I can remember! KoRn, Fallout Boy, Vundabar, Interpol, Ash Bricky, Lemon Demon, Flo Milli, Elliotly, IDKHBTFM, whoarethosefreaksonstage, the Misfits, P!ATD, Kimya Dawson, Alex G, The Crane Wives, Ken Ashcorp, Mitski, Local News Legend, REI AMI, Fredo Disco, Harley Poe, AJJ, Crywank, Jack Stauber, Pink Guy, Bo Burnham, Meth Wax, John Denver, Doechii, The Living Tombstone, CAKE, Rare Americans, Set it Off, Tender Surrender/MOM/Black Dresses/whatever they go by now, Days N' Daze, MIKA, Glass Animals, andd probably way more too!
 
 * And for hobbies.. Digital and traditional illustration, character design, guitar, harmonica, cosplay, sewing, comic books, thrift shopping, politics, religious studies, meteorology, psychology, zoology.
+  
+![bababanner2](https://github.com/user-attachments/assets/3e4965be-160b-44cb-93ef-f7310b3e01c7)
 
 
 :raccoon: # ABOUT ME
@@ -44,3 +52,10 @@ I have soo many interests, but here are just a few of them..
 🐈‍⬛ * I have 4 cats and I love them all so, so dearly. 
 
 * Progressive Christian! That means that no, I don't think being a minority is a sin. Be respectful, please!
+  
+![bababanner5](https://github.com/user-attachments/assets/cbe15ca6-a708-4642-9798-57f91261996c)
+
+![737441mxhj0jif9w](https://github.com/user-attachments/assets/1f2f5ca6-921d-46dc-bee8-8ec9911b6bda)![264093nuk0evgbtt]![264093nuk0evgbtt](https://github.com/user-attachments/assets/0b9af812-37e9-4e94-82f1-9841e82af6b5)
+
+
+
