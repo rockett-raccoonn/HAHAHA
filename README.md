@@ -22,8 +22,8 @@
 
 * I may sometimes be offtab but I never usually specify when I am, so make sure to whisper me anything you have to say so I can see it.
   
-* Don't copy my skins, but I'm ope to teach you how I did certain parts of them (Hair, shading, clothes, etc.)
-* 
+* Don't copy my skins, but I'm open to teach you how I did certain parts of them (Hair, shading, clothes, etc.)
+  
   ![bababanner4](https://github.com/user-attachments/assets/d68aebec-b52a-4fb7-9fc1-c67a16b9e84e)
   
  🎨 # FANDOM AND PERSONAL INTERESTS
