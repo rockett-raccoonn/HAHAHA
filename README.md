@@ -55,7 +55,7 @@ I have soo many interests, but here are just a few of them..
   
 ![bababanner5](https://github.com/user-attachments/assets/cbe15ca6-a708-4642-9798-57f91261996c)
 
-![737441mxhj0jif9w](https://github.com/user-attachments/assets/1f2f5ca6-921d-46dc-bee8-8ec9911b6bda)![264093nuk0evgbtt]![264093nuk0evgbtt](https://github.com/user-attachments/assets/0b9af812-37e9-4e94-82f1-9841e82af6b5)
+![737441mxhj0jif9w](https://github.com/user-attachments/assets/1f2f5ca6-921d-46dc-bee8-8ec9911b6bda)![264093nuk0evgbtt](https://github.com/user-attachments/assets/0b9af812-37e9-4e94-82f1-9841e82af6b5)
 
 
 
