@@ -27,4 +27,4 @@ I have soo many interests, but here are just a few of them..
 * I'm an ENTP-T, if that matters to you.
 * My favorite animal is the bear. No specific species, though.
 🐈‍⬛ * I have 4 cats and I love them all so, so dearly. 
-🙏 * Progressive Christian! That means that no, I don't think being a minority is a sin. Be respectful, please!
+* Progressive Christian! That means that no, I don't think being a minority is a sin. Be respectful, please!
