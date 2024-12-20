@@ -31,7 +31,7 @@
 
 I have soo many interests, but here are just a few of them..
 
-📺 * Metal Family, Guardians of the Galaxy, FNaF, Fallout, Pokemon, Care Bears, MLP, Cult of the Lamb, Happy Tree, Friends, Deadpool, Gwenpool, Just Dance (yes, the game). Probably more!
+📺 * Metal Family, Guardians of the Galaxy, FNaF, Fallout, Pokemon, Care Bears, MLP, Cult of the Lamb, Happy Tree Friends, Deadpool, Gwenpool, Just Dance (yes, the game). Probably more!
 
 🎵 * As far as music goes.. Heres what I can remember! KoRn, Fallout Boy, Vundabar, Interpol, Ash Bricky, Lemon Demon, Flo Milli, Elliotly, IDKHBTFM, whoarethosefreaksonstage, the Misfits, P!ATD, Kimya Dawson, Alex G, The Crane Wives, Ken Ashcorp, Mitski, Local News Legend, REI AMI, Fredo Disco, Harley Poe, AJJ, Crywank, Jack Stauber, Pink Guy, Bo Burnham, Meth Wax, John Denver, Doechii, The Living Tombstone, CAKE, Rare Americans, Set it Off, Tender Surrender/MOM/Black Dresses/whatever they go by now, Days N' Daze, MIKA, Glass Animals, andd probably way more too!
 
