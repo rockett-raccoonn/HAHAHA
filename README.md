@@ -5,7 +5,7 @@
 # HAHAHA
 ✨ Hello! My name is Venegas, but if you want, you can call me Vinnie or whatever cosplay I'm currently in. I use she/her pronouns. You may have seen me around, or maybe even coloring trees! Wherever you're from, you can have some info about me :D
 
-![bababanner3](https://github.com/user-attachments/assets/82ec8f17-e821-4478-893c-02dff9abff6b)
+![bababanner3](https://i.pinimg.com/736x/74/88/1b/74881be3072a1dfb46ae0d2b63fa707e.jpg)
 
 🍎 # PONYTOWN INFO
 ---- 
@@ -24,7 +24,7 @@
   
 * Don't copy my skins, but I'm open to teach you how I did certain parts of them (Hair, shading, clothes, etc.)
   
-  ![bababanner4](https://github.com/user-attachments/assets/d68aebec-b52a-4fb7-9fc1-c67a16b9e84e)
+  ![bababanner4](https://i.pinimg.com/736x/74/88/1b/74881be3072a1dfb46ae0d2b63fa707e.jpg)
   
  🎨 # FANDOM AND PERSONAL INTERESTS
   ----
@@ -37,7 +37,7 @@ I have soo many interests, but here are just a few of them..
 
 * And for hobbies.. Digital and traditional illustration, character design, guitar, harmonica, cosplay, sewing, comic books, thrift shopping, politics, religious studies, meteorology, psychology, zoology.
   
-![bababanner2](https://github.com/user-attachments/assets/3e4965be-160b-44cb-93ef-f7310b3e01c7)
+![bababanner2]([https://github.com/user-attachments/assets/3e4965be-160b-44cb-93ef-f7310b3e01c7](https://i.pinimg.com/736x/74/88/1b/74881be3072a1dfb46ae0d2b63fa707e.jpg))
 
 
 :raccoon: # ABOUT ME
@@ -53,7 +53,7 @@ I have soo many interests, but here are just a few of them..
 
 * Progressive Christian! That means that no, I don't think being a minority is a sin. God loves all his children! If you aren't Christian, thats totally fine, just be respectful, please! I am an ex-satanist/witch/hellenist/judaist, all from different periods of my life, so chances are, I understand where you're coming from if you're uncomfortable being around religious people. Thats alright! I won't push it on anybody, though I do openly show my love for God. 
   
-![bababanner5](https://github.com/user-attachments/assets/cbe15ca6-a708-4642-9798-57f91261996c)
+![bababanner5]([https://github.com/user-attachments/assets/cbe15ca6-a708-4642-9798-57f91261996c](https://i.pinimg.com/736x/74/88/1b/74881be3072a1dfb46ae0d2b63fa707e.jpg))
 
 ![737441mxhj0jif9w](https://github.com/user-attachments/assets/1f2f5ca6-921d-46dc-bee8-8ec9911b6bda)![264093nuk0evgbtt](https://github.com/user-attachments/assets/0b9af812-37e9-4e94-82f1-9841e82af6b5)
 
