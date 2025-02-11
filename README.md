@@ -3,14 +3,14 @@
 
 
 # HAHAHA
-✨ Hello! My name is Venegas, but if you want, you can call me Vinnie or whatever cosplay I'm currently in. I use she/her pronouns. You may have seen me around, or maybe even coloring trees! Wherever you're from, you can have some info about me :D
+✨ Hello! My name is Venegas, but if you want, you can call me Vinnie or whatever cosplay I'm currently in. I use she/her pronouns. You may have seen me around. Wherever you're from, you can have some info about me ദ്ദി(ᵔᗜᵔ)
 
 ![bababanner3](https://i.pinimg.com/736x/74/88/1b/74881be3072a1dfb46ae0d2b63fa707e.jpg)
 
 🍎 # PONYTOWN INFO
 ---- 
 
-🗺️ * I'm often hanging out by the docks or by spawn. Usually I'm in the middle of the map.
+۶ৎ * I'm often hanging out by the docks or by spawn. Usually I'm in the middle of the map.
 
 * I always love to join GTC or Fashion Roulettes, even if I'm bad at them, haha!
 
@@ -18,7 +18,7 @@
 
 * I type fast, sorry if I make no sense.
 
-🫂 * ALWAYS open for C + H, don't even have to ask :)!
+۶ৎ * ALWAYS open for C + H, don't even have to ask :)!
 
 * I may sometimes be offtab but I never usually specify when I am, so make sure to whisper me anything you have to say so I can see it.
   
@@ -31,7 +31,7 @@
 
 I have soo many interests, but here are just a few of them..
 
-📺 * Metal Family, Guardians of the Galaxy, FNaF, Fallout, Pokemon, Care Bears, MLP, Cult of the Lamb, Happy Tree Friends, Deadpool, Gwenpool, Just Dance (yes, the game). Probably more!
+۶ৎ * Metal Family, Guardians of the Galaxy, FNaF, Fallout, Pokemon, Care Bears, MLP, Cult of the Lamb, Happy Tree Friends, Deadpool, Gwenpool, Just Dance (yes, the game), Journey to the West. Probably more!
 
 🎵 * As far as music goes.. Heres what I can remember! KoRn, Fallout Boy, Vundabar, Interpol, Ash Bricky, Lemon Demon, Flo Milli, Elliotly, IDKHBTFM, whoarethosefreaksonstage, the Misfits, P!ATD, Kimya Dawson, Alex G, The Crane Wives, Ken Ashcorp, Mitski, Local News Legend, REI AMI, Fredo Disco, Harley Poe, AJJ, Crywank, Jack Stauber, Pink Guy, Bo Burnham, Meth Wax, John Denver, Doechii, The Living Tombstone, CAKE, Rare Americans, Set it Off, Tender Surrender/MOM/Black Dresses/whatever they go by now, Days N' Daze, MIKA, Glass Animals, andd probably way more too!
 
@@ -45,7 +45,7 @@ I have soo many interests, but here are just a few of them..
 
 * She/her, please! Though, I know being in cosplays makes it difficult to tell, so its alright if you use other prns!
 
-* I'm an ENTP-T, if that matters to you.
+* I'm an ENFP-T, if that matters to you.
 
 * My favorite animal is the bear. No specific species, though.
 
