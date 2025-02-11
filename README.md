@@ -7,7 +7,8 @@
 
 ![bababanner3](https://i.pinimg.com/736x/28/e0/e0/28e0e098cb5cf6832211d6fe69072501.jpg)
 
-🍎 # PONYTOWN INFO
+˚˖𓍢ִ໋🦢˚ # PONYTOWN INFO
+
 𓆝 𓆟 𓆞 𓆝 𓆟
 
 * I don't have a main spot where I hang out, I'm just kind of everywhere.
@@ -24,7 +25,8 @@
   
   ![bababanner4](https://i.pinimg.com/736x/2a/6b/09/2a6b094d346343af86cc60f52b639808.jpg)
   
- 🎨 # FANDOM AND PERSONAL INTERESTS
+ ˚˖𓍢ִ໋🦢˚ # FANDOM AND PERSONAL INTERESTS
+ 
 𓆝 𓆟 𓆞 𓆝 𓆟
 
 I have soo many interests, but here are just a few of them..
@@ -38,7 +40,8 @@ I have soo many interests, but here are just a few of them..
 ![bababanner2](https://i.pinimg.com/736x/17/cb/ad/17cbad85ceef77de99a71212d8f9264b.jpg)
 
 
-:raccoon: # ABOUT ME
+˚˖𓍢ִ໋🦢˚ # ABOUT ME
+
 𓆝 𓆟 𓆞 𓆝 𓆟
 
 * She/her, please! Though, I know being in cosplays makes it difficult to tell, so its alright if you use other prns!
