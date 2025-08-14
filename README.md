@@ -2,10 +2,10 @@
 ![bababanner](https://i.pinimg.com/1200x/5f/06/59/5f065984e4b8c2e1a05f4cdfc535b789.jpg)
 
 
-# HAHAHA
+# tch tch tch
 ⋆.˚ Hello! My name is Venegas, but if you want, you can call me Vinnie or whatever cosplay I'm currently in. I use she/her pronouns. You may have seen me around. Wherever you're from, you can have some info about me ദ്ദി(ᵔᗜᵔ)
 
-![bababanner3](https://i.pinimg.com/736x/28/e0/e0/28e0e098cb5cf6832211d6fe69072501.jpg)
+![bababanner3](https://i.pinimg.com/1200x/64/7f/cc/647fcc14bcedabffac4bdf4b6df9072a.jpg)
 
 ˚˖𓍢ִ໋🦢˚ # PONYTOWN INFO
 
