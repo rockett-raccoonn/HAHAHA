@@ -1,5 +1,5 @@
 
-![bababanner]([https://i.pinimg.com/1200x/5f/06/59/5f065984e4b8c2e1a05f4cdfc535b789.jpg])
+![bababanner](https://i.pinimg.com/1200x/5f/06/59/5f065984e4b8c2e1a05f4cdfc535b789.jpg)
 
 
 # HAHAHA
