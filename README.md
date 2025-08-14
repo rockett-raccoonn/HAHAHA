@@ -8,7 +8,7 @@
 
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
 
-# tch tch tch
+# きらきら
 ⋆.˚ Hello! My name is Venegas, but if you want, you can call me Vinnie or whatever cosplay I'm currently in. I use she/her pronouns. You may have seen me around. Wherever you're from, you can have some info about me ദ്ദി(ᵔᗜᵔ)
 
 ![bababanner3](https://i.pinimg.com/736x/70/35/ba/7035ba320ceffdd985b1f43baad3b5c9.jpg)
