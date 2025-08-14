@@ -2,12 +2,25 @@
 ![bababanner](https://i.pinimg.com/1200x/5f/06/59/5f065984e4b8c2e1a05f4cdfc535b789.jpg)
 
 
+════════════════════════════════════
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
+
 # tch tch tch
 ⋆.˚ Hello! My name is Venegas, but if you want, you can call me Vinnie or whatever cosplay I'm currently in. I use she/her pronouns. You may have seen me around. Wherever you're from, you can have some info about me ദ്ദി(ᵔᗜᵔ)
 
 ![bababanner3](https://i.pinimg.com/736x/70/35/ba/7035ba320ceffdd985b1f43baad3b5c9.jpg)
 
-˚˖𓍢🦢˚ # PONYTOWN INFO
+════════════════════════════════════
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
+
+
+˚˖𓍢🦢˚  PONYTOWN INFO
 
 * I don't have a main spot where I hang out, I'm just kind of everywhere. I've made my home on the safe server, you'll rarely see me outside of it.
 
@@ -20,8 +33,15 @@
 * Please don't copy my skins. That said, I am open to teach you how I did certain parts of them! (Hair, shading, clothes, etc.)
   
   ![bababanner4](https://i.pinimg.com/736x/70/35/ba/7035ba320ceffdd985b1f43baad3b5c9.jpg)
+
+════════════════════════════════════
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
+
   
- ˚˖𓍢🦢˚ # FANDOM AND PERSONAL INTERESTS
+˚˖𓍢🦢˚   FANDOM AND PERSONAL INTERESTS
 
 I have soo many interests, but here are just a few of them..
 
@@ -35,8 +55,14 @@ I have soo many interests, but here are just a few of them..
   
 ![bababanner2](https://i.pinimg.com/736x/70/35/ba/7035ba320ceffdd985b1f43baad3b5c9.jpg)
 
+════════════════════════════════════
 
-˚˖𓍢ִ໋🦢˚ # ABOUT ME
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　
+
+︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹
+
+
+˚˖𓍢🦢˚  ABOUT ME
 
 * She/her, please! Though, I know being in cosplays makes it difficult to tell, so its alright if you use other prns!
 
