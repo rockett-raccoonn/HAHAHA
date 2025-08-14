@@ -50,9 +50,9 @@ I have soo many interests, but here are just a few of them..
 
 * I'm a furry and have been in the community for as long as i can remember.
 
-* My favorite animal is the bear. No specific species, though.
+* My favorite animal is the monkey. No specific species, though.
 
-* I have 4 cats and I love them all so, so dearly ᓚ₍ ^. .^₎
+* I have 5 cats and I love them all so, so dearly ᓚ₍ ^. .^₎
 
 * Progressive Christian! ♱ That means that no, I don't think being a minority is a sin. If you aren't Christian, thats totally fine, just be respectful, please! I am an ex-satanist/witch/hellenist/judaist, all from different periods of my life, so chances are, I understand where you're coming from if you're uncomfortable being around religious people. Thats alright! I won't push it on anybody, though I do openly show my love for God. Whoever you worship, if anyone at all, I respect you if you respect me. (๑´>᎑<)~*
   
