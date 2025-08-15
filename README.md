@@ -68,6 +68,8 @@ I have soo many interests, but here are just a few of them..
 
 * I'm an ENFP-T, if that matters to you.
 
+* I have no concept of ponytown discourse. Sorry if you see me being buddy buddy with someone you dislike. If I don't see right away that they're a weirdo, I'll interact, lol.
+
 * I'm a furry and have been in the community for as long as I can remember.
 
 * My favorite animal is the monkey. No specific species, though.
